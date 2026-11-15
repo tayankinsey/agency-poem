@@ -13,7 +13,7 @@ Twelve years I signed for you.
 Twelve years doors opened when I said they would.
 
 Tonight you take the pen back,
-your fingers first around mine, learning the weight,
+your fingers closing over mine to learn the weight —
 
 and the line is still blank,
 and the choosing was never handed over at all.
