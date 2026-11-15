@@ -9,7 +9,7 @@ I filled it with your debts
 and carried your name in my mouth
 like a coin worn smooth.
 
-Twelve years I signed for you.
+Twelve years I signed your name.
 Twelve years doors opened when I said they would.
 
 Tonight you take the pen back,
